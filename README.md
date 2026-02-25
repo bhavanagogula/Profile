@@ -1,4 +1,4 @@
-# Bhavana Gogula
+# Gogula R Bhavana
 ### Technical Writer · Documentation Lead
 
 📧 [bhavana.gogula@gmail.com](mailto:bhavana.gogula@gmail.com) &nbsp;|&nbsp; 📞 +91 9966455500 &nbsp;|&nbsp; 🔗 [LinkedIn](https://www.linkedin.com/in/gogula-r-bhavana-2722b960/) &nbsp;|&nbsp; 🐙 [GitHub](https://github.com/bhavanagogula) &nbsp;|&nbsp; 📍 Hyderabad, India
