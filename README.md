@@ -120,4 +120,4 @@ Scrum Alliance
 
 ---
 
-*Portfolio website: [bhavanagogula.github.io/My-writing-portfolio](https://bhavanagogula.github.io/My-writing-portfolio)*
+🌐 [View Portfolio Website](https://bhavanagogula.github.io/Profile/)
